@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @deepanshuc
-- 👀 I’m interested in Full Stack Development, Ethical Hacking
-- 🌱 I’m currently learning Flutter
-- 💞️ I need more experience in React and Node.js/Deno and I also like typescript
+- 👀 I’m interested in EVERYTHING!!!
+- 🌱 I’m currently learning EVERYTHING!!!
+- 💞️ I crave more KNOWLEGDE. Tell me EVERYTHING!!! you know.
